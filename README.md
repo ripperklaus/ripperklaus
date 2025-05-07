@@ -13,7 +13,7 @@
 - 🤝 Actively involved in **competitive programming**.
 
 ### 📫 Reach Me At
-- Email: [udityanshu9696@gmail.com](mailto:udityanshu9696@gmail.com)
+- Email: [udityanshu9696@gmail.com](mailto:pandeyudityanshu@gmail.com)
 - LinkedIn: [Udityanshu Pandey](https://www.linkedin.com/in/udityanshu-pandey-7788531b8/)
 
 ---
